@@ -1,4 +1,4 @@
-😀 Hello! I'm AaronRules5! Also known as Lolamingos! Also known as Fiddleron! Also known as Aaron Stultz! 😀
+😀 Hello! I'm AaronRules5! Also known as Lolamingos! Also known as Fiddleron! 😀
 😎 I like programming, drawing, and making funny videos! 😎
 👩‍💻 Feel free to check out my repositories! 👩‍💻
 
