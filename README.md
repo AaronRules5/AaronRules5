@@ -1,5 +1,5 @@
-😀 Hello! I'm AaronRules5! Also known as Lolamingos! Also known as Fiddleron! 😀
-😎 I like programming, drawing, and making funny videos! 😎
+😀 Hello! I'm AaronRules5! 😀
+😎 I like programming, drawing, arranging music, and editing videos! 😎
 👩‍💻 Feel free to check out my repositories! 👩‍💻
 
 <!---
